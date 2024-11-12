@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kuba-the-programmer
 - 👀 I’m interested in basketball, programming and robotics
 - 🌱 I’m currently learning C
-- 📫 How to reach me: Discord - stophybridgov8   or  gmail - kuba.the.programmer@gmail.com
+- 📫 How to reach me: Discord - stophybridgov8   or  gmail - kuba.the.programmer1@gmail.com
 - 😄 Pronouns: He/Him
 
 

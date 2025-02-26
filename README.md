@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kuba-the-programmer
-- 👀 I’m interested in basketball, programming and robotics
+- 👀 I’m interested in programming, AI and robotics
 - 🌱 I’m currently learning Python
 - 📫 How to reach me: Discord - stophybridgov8   or  gmail - kuba.the.programmer1@gmail.com
 - 😄 Pronouns: He/Him
